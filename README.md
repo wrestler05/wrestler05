@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wrestler05
+- 👋 Hi, I’m Muhammad
 - 👀 I’m interested in wrestling
 - 🌱 I’m currently learning english and webDeveloping
 - 📫 How to reach me: by instagram (nasriddinxojayev) telegram (Unknown20o5) my tel number +998 98 888 55 40 
